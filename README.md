@@ -1,2 +1,2 @@
 # barnikabeast.github.io
-kaki
+Afrika
