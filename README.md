@@ -1,2 +1,0 @@
-# barnikabeast.github.io
-Afrika
